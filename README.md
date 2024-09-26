@@ -1,2 +1,2 @@
 # csumit
-created by sumiiii the pookie 
+created by Sumit
